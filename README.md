@@ -1,0 +1,2 @@
+# episodefromframeobrazky
+zde pridavat snimky
